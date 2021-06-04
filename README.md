@@ -1,7 +1,7 @@
 ## Hi there 👋, Im wambugu 😃
 
 
-###       Im an aspiring self-taught data scientist using data📈 and the scientific method🔎 to solve today's problems for a better tomorrow
+### Im an aspiring self-taught data scientist using data📈 and the scientific method🔎 to solve today's problems for a better tomorrow
 
 
 * Reach me at: wwambugu62@gmail.com 📬 or on whatsapp: https://wa.link/dwu65q 📲
